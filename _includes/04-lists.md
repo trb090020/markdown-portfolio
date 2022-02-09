@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. Raindrops on noses
+2. Whiskers on kittens
+3. Doorbells
+4. Sleighbells
+5. Warm woolen mittens
